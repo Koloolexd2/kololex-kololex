@@ -1,0 +1,1 @@
+jakas podstawowa strona, pozdro
